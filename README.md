@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @kranercc
+- 🌱 I’m currently learning marketing and business management 
