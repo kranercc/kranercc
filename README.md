@@ -1,2 +1,2 @@
 - 👋 Hi, I’m @kranercc
-- 🌱 I’m currently learning marketing and business management 
+- 🌱 I’m currently learning marketing and for my CEH 
